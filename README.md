@@ -1,1 +1,1 @@
-God is dead
+# God is dead
