@@ -1,1 +1,1 @@
-# Goodrain
+God is dead
